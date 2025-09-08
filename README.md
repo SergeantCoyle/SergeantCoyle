@@ -1,1 +1,1 @@
-![ezgif com-crop(8)](https://github.com/user-attachments/assets/0427f5b3-1c75-492c-9ea2-88cfc7dc3eb0)
+<img width="1080" height="271" alt="the-outlast-trials-weapons-v0-cfssj3zelaqe1" src="https://github.com/user-attachments/assets/47c6bbf0-ee54-4928-9d88-5c158cac456b" />
