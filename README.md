@@ -1,5 +1,3 @@
-![tumblr_5ceaf840b568d3d18fb911e4c1cf5da5_20dfa3e9_400](https://github.com/user-attachments/assets/4b262f23-5ec1-4d1e-b044-50bb4a703ee6)
-
 My Face And Height Reveal.
 
 <img width="124" height="112" alt="IMG_3499" src="https://github.com/user-attachments/assets/bd65bc4e-efca-4090-97e0-b9ebf1a23463" /> 
