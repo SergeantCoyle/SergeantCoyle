@@ -1,3 +1,5 @@
+![tumblr_145f804ea37c605babb54d41809120dc_ef6c080a_500](https://github.com/user-attachments/assets/a1844ed4-b8a3-4277-b828-8726d808862e)
+
 My Face And Height Reveal.
 
 <img width="124" height="112" alt="IMG_3499" src="https://github.com/user-attachments/assets/bd65bc4e-efca-4090-97e0-b9ebf1a23463" /> 
@@ -12,5 +14,3 @@ This Is Me Chasing After My Son. I'm A Single Father, Veteran, And A SERGEANT Of
 ![wontletgo](https://github.com/user-attachments/assets/a39dcb66-d4aa-492b-b869-f0a645cded57)
 
 🚬🚬 **Shame It Wasn't A Bath Week...** 🚬🚬
-
-![tumblr_145f804ea37c605babb54d41809120dc_ef6c080a_500](https://github.com/user-attachments/assets/a1844ed4-b8a3-4277-b828-8726d808862e)
