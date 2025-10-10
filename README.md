@@ -6,8 +6,11 @@ This Is Me Chasing After My Son. I'm A Single Father, Veteran, And A SERGEANT Of
 
   ![idkus](https://github.com/user-attachments/assets/3cf310ce-3a74-4a72-aacd-2762a02da837) 
   
-![tumblr_145f804ea37c605babb54d41809120dc_ef6c080a_500](https://github.com/user-attachments/assets/de76a64e-66e1-4205-b6f0-36a9294b5502)
+<img width="50" height="30" alt="498062530-cc80274b-46ca-46de-9e83-9b94d798f940" src="https://github.com/user-attachments/assets/59cdc275-1fe1-4ab1-b8e6-4d1d22e15ca5" /><img width="50" height="30" alt="498062530-cc80274b-46ca-46de-9e83-9b94d798f940" src="https://github.com/user-attachments/assets/59cdc275-1fe1-4ab1-b8e6-4d1d22e15ca5" />
+<img width="50" height="30" alt="498062530-cc80274b-46ca-46de-9e83-9b94d798f940" src="https://github.com/user-attachments/assets/59cdc275-1fe1-4ab1-b8e6-4d1d22e15ca5" />
 
 ![wontletgo](https://github.com/user-attachments/assets/a39dcb66-d4aa-492b-b869-f0a645cded57)
 
 🚬🚬 **Shame It Wasn't A Bath Week...** 🚬🚬
+
+![tumblr_5ceaf840b568d3d18fb911e4c1cf5da5_20dfa3e9_400](https://github.com/user-attachments/assets/30c000cb-f3c1-49aa-aa9e-06eb83e1d59d)
