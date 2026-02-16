@@ -13,4 +13,5 @@ This Is Me Chasing After My Son. I'm A Single Father, Veteran, And A SERGEANT Of
 
 🚬🚬 **Shame It Wasn't A Bath Week...** 🚬🚬
 
-![Untitled58_20251231215312](https://github.com/user-attachments/assets/3b2ae34a-9a89-4a26-b768-2d0ea3ac85b1)
+<img width="650" height="580" alt="twist" src="https://github.com/user-attachments/assets/1549d50b-a32e-46c1-b852-5d632c9d29f3" />
+assets/3b2ae34a-9a89-4a26-b768-2d0ea3ac85b1)
